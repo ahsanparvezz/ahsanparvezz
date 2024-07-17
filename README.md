@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Instagram
 - 📫 How to reach me @ahsanparvezz on Instagram
 - 😄 Pronouns: He\they
-- ⚡ Fun fact: IDK WHAT IM DOING HERE
+- ⚡ Fun fact: I love Minecraft
 
 <!---
 ahsanparvezz/ahsanparvezz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
