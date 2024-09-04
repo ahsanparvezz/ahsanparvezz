@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ahsanparvezz
-- 👀 I’m interested in Cybersecurity
+- 👀 I’m interested in Data Analyst and Business Analyst
 - 🌱 I’m currently learning Basic Programming Languange like python
 - 💞️ I’m looking to collaborate on Instagram
 - 📫 How to reach me @ahsanparvezz on Instagram
